@@ -4,6 +4,5 @@
 
 ˗ˏˋ i am ship, and let ship. anti harrasment, proship. the works, it's fiction.
 
-<img width="603" height="474" alt="wilba 2" src="https://github.com/user-attachments/assets/e0bb83f3-62a4-49fe-a8e9-036012af5259" />
-
 ˗ˏˋ more on my strawpage !! :3c
+<img width="603" height="474" alt="wilba 2" src="https://github.com/user-attachments/assets/e0bb83f3-62a4-49fe-a8e9-036012af5259" />
